@@ -1,5 +1,2 @@
 # HOLA
-ESTOY PROBANDO COMO FUNCIONA
-
-
-esto q es
+como vas??
